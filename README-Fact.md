@@ -1,1 +1,0 @@
-Hedge funds are not cool 
